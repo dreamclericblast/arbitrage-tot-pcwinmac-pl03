@@ -1,4 +1,4 @@
-# 
+# Profissional arbitrage trading bot fluxo de trabalho for Mac OS | Elite arbitrage trading bot fluxo de trabalho for PC Windows. Featuring análise de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
